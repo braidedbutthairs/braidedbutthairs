@@ -7,28 +7,8 @@
   # About Me !
 HEyyy I'm Jax, . Im usually on discord or watching sm or drawing so dm thru there if you have me added. You can always talk to me whenever unless i say otherwise. I love meeting people but im shy so if im not offtab and im not responding i could be afk. Im not good with talking with people even over a screen so be patient with me. But otherwise im always welcome to making friends,,!
 
-# My Interest
-## Main ones..
-* Yellowjackets
-* Glee
-* Stranger Things
-* Horror Media
-* Queer Media
-## Side ones..
-* Pluribus
-* DC
-* Sweetpea
-* KPDH
-* DW
-* Tapoki's Original Sin
+
 <p align="center">.
-  
-# Hobbies
-* Traditional Art
-* Digital Art
-* Reading
-* Music
-* My OC's
 
 
   <p align="center">I hope this helps you get to know me a bit better 
